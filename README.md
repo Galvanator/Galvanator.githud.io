@@ -1,1 +1,0 @@
-# Galvanator.githud.io
